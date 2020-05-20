@@ -11,8 +11,8 @@ _Hosted by Guildhall professor Jono Buchanan and joined by musicians on stage, t
 
 # [Logic Pro X Masterclass - Part 1](https://www.youtube.com/watch?v=sqm8Q3jlNVI) [& 2](https://www.youtube.com/watch?v=gZfA4c6GCwM)
 ## [Guildhall School of Music & Drama](https://www.youtube.com/channel/UC7HOGKjSKzP5PBfmdaAkbQg)
-`Rating: ❓`
+`Rating: ⭐️⭐️⭐️⭐️`
 
 _Logic Pro X Masterclass from the Guildhall School's Electronic Music Department, hosted by Guildhall professor Jono Buchanan and joined by Guildhall musicians on stage in the Milton Court Concert Hall._
 
-💭 My opinion: Not seen yet; __next on the list__
+💭 My opinion: Nice overview of Logic Pro X functonnalites for song composition, with live artists recording. +1 for the quick mastering tutorial at the end.
