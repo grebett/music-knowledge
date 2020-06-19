@@ -6,3 +6,12 @@
 _NOT SEEN YET_
 
 💭 My opinion: NOT SEEN YET
+
+# [LOGIC SESSION BREAKDOWN: "Moon River"](https://www.youtube.com/watch?v=9d4-URyWEJQ)
+## [Jacob Collier](https://www.youtube.com/channel/UCtmY49Zn4l0RMJnTWfV7Wsg)
+
+`Rating: ⭐️⭐️⭐️⭐️⭐️`
+
+_Jacob Collier breaks down the logic session of his GRAMMY winning arrangement of Moon River._
+
+💭 My opinion: NOT SEEN YET
